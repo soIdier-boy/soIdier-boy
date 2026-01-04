@@ -1,16 +1,13 @@
-## Hi there 👋
+&nbsp;<div align="center">
+# @sspacedoutz should be CANCELED! 
 
-<!--
-**soIdier-boy/soIdier-boy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[![Untitled1386-20260103200442.png](https://i.postimg.cc/q7Qr0SYq/Untitled1386-20260103200442.png)](https://postimg.cc/QBBwJ4jZ)
 
-Here are some ideas to get you started:
+19:27[springbonnie] whatevr. its not like im happu ... :/
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+19:42[boy rich] my 1 billion girflridns
+
+:18[springbonnie] boi in the army #tuff.💀
+
+19:16[springbonnie] whispers: NOT FUNNY..*IS TRIGGERD*
+</div>
